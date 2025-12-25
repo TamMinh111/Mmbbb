@@ -35,7 +35,7 @@ m.quang379
 Facebook: 
 https://www.facebook.com/Kyouko.56?mibextid=ZbWKwL
 -------------------------------------------------------------
-Zalo: Trùm Bú Lồn
+Tme: @cavandai67
 {xnhac}
 -------------------------------------------------------------
 {hong}
